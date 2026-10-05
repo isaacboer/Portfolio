@@ -1,2 +1,2 @@
 # Portfolio
-My portfolio ab I ut th
+My portfolio is all about my work 
